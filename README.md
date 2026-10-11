@@ -220,4 +220,4 @@ O&O UnErase is offered as a **full free version** with all features included. En
 Don't wait until it's too late! Download **O&O UnErase Free** today and safeguard your valuable files from accidental deletion.
 
 ---
-**Last updated:** 2026-10-10 20:25:40 UTC
+**Last updated:** 2026-10-11 00:02:14 UTC
